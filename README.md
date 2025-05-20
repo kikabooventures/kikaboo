@@ -1,3 +1,3 @@
 # Kikaboo Ventures
-Kikaboo Ventures - Investing in solopreneurs
+Investing in solopreneurs
 
